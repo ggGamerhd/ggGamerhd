@@ -11,3 +11,9 @@
 | :---        |    :----:   |          ---: |
 |             |    Bot      |               |
 | Website     |             |               |
+---
+### My Discord
+>Gadgamer#3093
+---
+### I´m from
+>Germany
